@@ -6,4 +6,4 @@ my computer teacher is dhoriya kinjal
 welcome to my first page
 my computer teacher picture👇
 # output
-https://ibb.co/x2VQ8GN
+
